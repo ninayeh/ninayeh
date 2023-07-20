@@ -1,4 +1,4 @@
-I am Chiawen Yeh aka Nina on internet. 🧋
+I am Chiawen Yeh, aka Nina on internet. 🥂
 
 <!--
 **ninayeh/ninayeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
